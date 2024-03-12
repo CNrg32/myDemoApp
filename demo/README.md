@@ -1,0 +1,1 @@
+proje ile ilgili şeyleri yaz en son
